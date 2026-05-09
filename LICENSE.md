@@ -1,4 +1,4 @@
-
+Enhance Adobe Audition for macOS with advanced Adobe Audition for macOS Extension | sound-design + slow-motion, the #1 extension. Includes sound-design and slow-motion for a
 
 
 
